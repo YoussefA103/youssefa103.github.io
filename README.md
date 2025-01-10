@@ -1,10 +1,108 @@
 # youssefa103.github.io
 
-![20240502_154040](https://github.com/user-attachments/assets/c22ca4c8-d2a1-458b-b3de-45ad2beb1447)
+Walthamstow Academy Work Experience.
 
-![20240718_124959](https://github.com/user-attachments/assets/bb0d40b5-08e6-4113-8747-60d3f97dc60a)
+Year 10 Walthamstow Academy Football Team.
 
-![20240718_142855](https://github.com/user-attachments/assets/6bbf58b6-d363-4cf7-bca5-cc202bd9a8d0)
+Head of Year Award Year 11.
 
-![20240718_143455](https://github.com/user-attachments/assets/2cab362c-1369-42cf-8408-500b9ed6cc22)
+ Best in everyone awards : Business, Geography, Science.
 
+Imperial College London, Biomedical Technology Ventures taster afternoon, Innovating Medical Technologies!
+
+Young Professionals, Business and Accounting.
+
+Young Professionals, TheTech Future.
+
+PwC Flying Start Kick Off Event
+
+Mathematics Year 6 Open Evening
+
+UK University Search event 1⃣ 9⃣ October
+
+Direct Line Group 2 Day In Person Business Simulation Work Experience Event 2⃣ 6⃣ and 2⃣ 7⃣ October 
+
+Government, Civil Services Offices, Department For Business and Trade. 1⃣ November
+
+British Airways Work Experience Insight Day - Business 8⃣ November
+
+Oxford University Visit 9⃣ November
+
+Barclays Life Skills Work Experience 1⃣ 8⃣ November
+
+JP Morgan Careers Programme
+
+Queen Mary Futures Programme 
+
+National: PwC, Business, Finance and Technology Virtual Insight Work Experience Day  Thursday, February 1, 2024 10:00 AM - 12:30 PM
+
+Young Professionals Business & Accounting Virtual Event on Monday, 5th February, from 5pm - 6:30pm
+
+Young Professionals Banking and FinTech Virtual Event Tuesday 6th February, from 5pm - 6:30pm 
+
+Buddy Reading Walthamstow Academy
+
+Tuesday, February 13, 2024 10:00 AM - 11:30 AM National: Deloitte, ASPIRE & Professional Services Application Masterclass
+
+Economics Buddy Programme 
+
+Mayor's Fund For London Mock Interviews Student Guidance 22/02/2024 
+
+UCL Economics Masterclass 
+
+Young Professionals Get into Insurance & Finance Work Experience Day 
+Friday 8th March, QEII Centre London - Westminster 1pm-5pm
+
+AMSP Making a Competitive Application to Study a Mathematical Degree at University
+
+UCL Statistics Masterclass
+
+National: KPMG One+1 Social Mobility Work Placement  01/05/2024 - 02/05/2024 1st May- 2nd May
+
+UKMT Club
+
+UCL Mathematics Masterclass
+
+Russell Group Webinars
+
+Imperial College mA*ths Online Programme Year 12 
+
+Future Leaders
+
+LSE Taster Course Economics, History, Humanities, Social Sciences
+
+ LUDUS GOLD
+
+UCL Personal Statement Workshop 18th and 20th of June 4-5pm
+
+Maths Year 12 Outreach Programme
+
+Beyond the Classroom Oxford Trinity College Programme.
+
+Young Economist of The Year
+
+ Realising Opportunities
+
+Careers Skills and Mentoring with PwC 23/24 Thursday 8th January, 7th March, 25th April, 27 June.
+
+Cambridge Residential
+
+ LSE Sutton Trust, Banking and Finance.
+
+Virtual Insight Programme, Y11 Eng&Wales/Y12 NI/S4 Scotland, 2024(503984WD)
+
+PwC New World New Skills work experience week (5th – 9th August)
+
+A Very Short Introduction To: Economics 
+
+AMSP IMPERIAL
+
+UKMT SMC GOLD BEST IN SCHOOL CERTIFICATE
+
+Have to attend/coming up
+
+Essential Mathematics For Economic Analysis 
+
+United Learning Oxbridge Programme 
+
+Cambridge STEM SMART
