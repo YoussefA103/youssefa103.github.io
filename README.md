@@ -29,6 +29,9 @@ University of Cambridge STEM SMART Programme
 University of Cambridge Residential
 
 
+
+
+
 ***Lectures:***
 
 LSE Economics and Economic History Lecture Taster Course
@@ -38,6 +41,8 @@ UCL Mathematics Masterclass
 UCL Statistics Masterclass
 
 UCL Economics Masterclass
+
+
 
 
 
@@ -55,11 +60,19 @@ British Airways Work Experience
 
 Direct Line Group Work Experience
 
+
+
+
+
 ***Visits:***
 
 Oxford University Visit
 
 Government, Civil Services Offices, Department For Business and Trade
+
+
+
+
 
 ***Competitions and Awards:***
 
@@ -74,6 +87,9 @@ Young Economist of The Year Essay Competition
 
 Subject Certificates
 
+
+
+
 ***Books and Reading:***
 
 Essential Mathematics For Economic Analysis by Knut Sydsaeter, Peter Hammond, Arne Strom and Andres Carvajal
@@ -83,6 +99,8 @@ The Rise and Fall of the Italian Economy by Carlo Bastasin and Gianni Toniolo
 End This Depression Now! by Paul Krugman
 
 Economics by Partha Dasgupta
+
+
 
 
 ***Societies and Clubs:***
