@@ -1,4 +1,4 @@
-# youssefa103.github.io
+**Supercurricular Activities, Awards, and Extracurriculars**
 
 ***Programmes:***
 
@@ -7,18 +7,24 @@ Imperial College London AMSP Programme
 Sutton Trust Pathways to Banking and Finance Programme
 
 Imperial College mA*ths Online Programme
+![20250112_132214](https://github.com/user-attachments/assets/c0cb5831-949a-4bd9-b259-6a2a0f6501fd)
 
 Realising Opportunities Programme at UCL
 
 LUDUS GOLD Programme
+![20250112_132134](https://github.com/user-attachments/assets/9bc51f8b-5c4b-46ec-bbfe-fa1e996c91fc)
 
 Future Leaders Programme
+![(Online East 4) Graduate certificates (1)PDF_240725_131246](https://github.com/user-attachments/assets/0f5f8aaf-4543-4423-b6be-cebdbe2b3f05)
 
 Queen Mary Futures Programme
+![Certificate Awarded_240213_123448](https://github.com/user-attachments/assets/a4b49941-600e-4364-9fd8-11ff5a420be7)
 
 JP Morgan Careers Programme
+![Certificate Awarded_240213_123632](https://github.com/user-attachments/assets/32c36641-2f53-45cd-aa27-e34828ed7245)
 
 University of Oxford,Trinity College,Beyond the Classroom  Programme
+![Youssef Ahmed_240729_113045](https://github.com/user-attachments/assets/078e7f2c-4188-4b2a-8951-3433633075fe)
 
 University of Greenwich AMSP Programme
 
@@ -53,12 +59,16 @@ PwC Temporary Contracted Employment ('New World. New Skills')
 PwC Virtual Work Experience Programme
 
 KPMG Work Placement
+![Notes_240509_012457](https://github.com/user-attachments/assets/ce478cd8-d207-48c8-a194-9d9e4b08ea5b)
 
 Barclays Life Skills Work Experience
+![Certificate Awarded_240213_125052](https://github.com/user-attachments/assets/7367c11a-9ca1-47d0-b3a9-b9ae476fd24b)
 
-British Airways Work Experience
+British Airways Business Work Experience
+![Certificate Awarded_240320_163057](https://github.com/user-attachments/assets/9c4ed345-4016-4c40-ba7f-0964be0c418a)
 
 Direct Line Group Work Experience
+![Certificate Awarded_240213_124744](https://github.com/user-attachments/assets/30ebfdb1-d555-4972-bb39-039490321ace)
 
 
 
@@ -82,10 +92,11 @@ Best in everyone awards : Business, Geography, Science.
 Head of Year Award
 
 UK Mathematics Trust Senior Maths Challenge: 'GOLD' 'BEST IN SCHOOL' CERTIFICATE
+![Uploading 20250112_132727.jpg…]()
 
 Young Economist of The Year Essay Competition
 
-Subject Certificates
+15 Subject Certificates
 
 
 
@@ -93,12 +104,17 @@ Subject Certificates
 ***Books and Reading:***
 
 Essential Mathematics For Economic Analysis by Knut Sydsaeter, Peter Hammond, Arne Strom and Andres Carvajal
+![20250112_131123](https://github.com/user-attachments/assets/0ed73ede-4284-41e1-acd0-5643987d65cc)
 
 The Rise and Fall of the Italian Economy by Carlo Bastasin and Gianni Toniolo
+![20250112_131150](https://github.com/user-attachments/assets/426a0fe5-2c03-4174-b0e9-06cbc6c880b0)
 
 End This Depression Now! by Paul Krugman
+![20250112_131208](https://github.com/user-attachments/assets/2bf2bb85-992c-4cd8-aa1b-ce8487064629)
+
 
 Economics by Partha Dasgupta
+![20250112_131233](https://github.com/user-attachments/assets/7fe2f71f-c44c-4477-b3a6-81d2c3f61144)
 
 
 
