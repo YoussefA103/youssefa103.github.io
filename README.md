@@ -1,6 +1,7 @@
 # youssefa103.github.io
 
 ***Programmes:***
+
 Imperial College London AMSP Programme
 
 Sutton Trust Pathways to Banking and Finance Programme
@@ -29,6 +30,7 @@ University of Cambridge Residential
 
 
 ***Lectures:***
+
 LSE Economics and Economic History Lecture Taster Course
 
 UCL Mathematics Masterclass
@@ -40,6 +42,7 @@ UCL Economics Masterclass
 
 
 ***Work Experiences, Placements and Employment:***
+
 PwC Temporary Contracted Employment ('New World. New Skills')
 
 PwC Virtual Work Experience Programme
@@ -53,11 +56,13 @@ British Airways Work Experience
 Direct Line Group Work Experience
 
 ***Visits:***
+
 Oxford University Visit
 
 Government, Civil Services Offices, Department For Business and Trade
 
 ***Competitions and Awards:***
+
 Best in everyone awards : Business, Geography, Science.
 ![20250112_121926](https://github.com/user-attachments/assets/92e7140a-f526-44f9-a902-4f95aef45c12)
 
@@ -70,6 +75,7 @@ Young Economist of The Year Essay Competition
 Subject Certificates
 
 ***Books and Reading:***
+
 Essential Mathematics For Economic Analysis by Knut Sydsaeter, Peter Hammond, Arne Strom and Andres Carvajal
 
 The Rise and Fall of the Italian Economy by Carlo Bastasin and Gianni Toniolo
