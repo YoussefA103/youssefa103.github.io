@@ -92,7 +92,7 @@ Best in everyone awards : Business, Geography, Science.
 Head of Year Award
 
 UK Mathematics Trust Senior Maths Challenge: 'GOLD' 'BEST IN SCHOOL' CERTIFICATE
-![Uploading 20250112_132727.jpg…]()
+![20250112_132727](https://github.com/user-attachments/assets/66361f7d-695e-4f4a-83f2-8d6d36923c0b)
 
 Young Economist of The Year Essay Competition
 
