@@ -2,7 +2,7 @@
 
 ***Programmes:***
 
-Imperial College London AMSP Programme
+AMSP Programme at Imperial College London
 
 Sutton Trust Pathways to Banking and Finance Programme
 
@@ -26,7 +26,7 @@ JP Morgan Careers Programme
 University of Oxford,Trinity College,Beyond the Classroom  Programme
 ![Youssef Ahmed_240729_113045](https://github.com/user-attachments/assets/078e7f2c-4188-4b2a-8951-3433633075fe)
 
-University of Greenwich AMSP Programme
+AMSP Programme at the University of Greenwich
 
 PwC Careers Skills and Mentoring Programme 
 
