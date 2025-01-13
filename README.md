@@ -101,7 +101,7 @@ Achieving such an award accentuated my aptitude for problem-solving and mathemat
 
 **Young Economist of the Year Competition**
 
-Taking up the challenge of writing a blog to compete nationally regarding contemporary economic issues significantly reinforced my academic essay-writing abilities as well as conducting effective research to complement and support my economic arguments.
+Taking up the challenge of writing a blog to compete nationally regarding contemporary economic issues significantly reinforced my academic essay-writing abilities. I improved my capabilities to conduct effective research to complement and support my economic arguments.
 
 
 
@@ -123,7 +123,7 @@ Furthermore, I was awarded the Head Of Year Award, an exclusive honour awarded t
 ![1736737355929](https://github.com/user-attachments/assets/2f5482b1-da54-431c-b5b5-433af62c2ce3)
 **KPMG Work Placement**
 
-Initially, I explored the SME schemes claimable by firms with eligible expenditure, parameters and determinants assessed to grant firms a reduction in costs through evaluations of whether such expenditures directly or indirectly contribute to the scientific and technological advancements explored. Furthermore, I shadowed a KPMG professional during a video call meeting with the client firm discussing possible government-subsidising figures in the event of an accepted claim by HMRC. This provided me with an Insight in the Tax and Legal sector's role within the firm as well as the interaction and communication with clients. Additionally, I shadowed professionals in a meeting between senior members and departments discussing key business objectives, strategies and contemporary performance. Moreover, I was assigned with the task of producing spreadsheets of potentially qualifying expenditure of a client firm through a Research and Development scheme along with a cleansed R&D assessment utilised to derive the total qualifying expenditure, comprising net RDEC rates. Finally, I summarised key project bottlenecks and difficulties experienced by the clients in their research to provide a scientific or technological advancement through specific confidential scenarios encountered.
+Initially, I explored the SME schemes claimable by firms with eligible expenditure, parameters and determinants assessed to grant firms a reduction in costs through evaluations of whether such expenditures directly or indirectly contribute to the scientific and technological advancements developed. Furthermore, I shadowed a KPMG professional during a video call meeting with a client firm discussing possible government-subsidy figures in the event of an accepted claim by HMRC. This provided me with an Insight in the Tax and Legal sector's role within the firm as well as the interaction and communication with clients. Additionally, I shadowed professionals in a meeting between senior members and departments discussing key business objectives, strategies and contemporary performance. Moreover, I was assigned with the task of producing spreadsheets of potentially qualifying expenditure of a client firm through a Research and Development scheme along with a cleansed R&D assessment utilised to derive the total qualifying expenditure, comprising net RDEC rates. Finally, I summarised key project bottlenecks and difficulties experienced by clients in their research to provide a scientific or technological advancement through specific confidential scenarios encountered.
 
 
 
@@ -135,7 +135,7 @@ I refined my analytical skills and was presented with a practical application of
 
 ![1736737185453](https://github.com/user-attachments/assets/7d841b39-3a71-424e-a1e9-ebc259871875)
 **British Airways Work Experience**
-I was assigned to a group to devise a project on an innovative product or service for British Airways, which involved group discussions and plans, and subsequently a group presentation. This reinforced my ability to work in a team, and make speeches to present key ideas and innovations. Furthermore, another assignment included allocating a budget for a charity event efficiently to meet consumer demand with sufficient supply of resources, requiring a degree of evaluation and critical thinking to determine where the allocation of the spending budget would satisfy participants. Ultimately, in a team, I determined the most effective advertisement campaign for British Airways to raise its market share.
+I was assigned to a group to devise a project on an innovative product or service for British Airways, which involved group discussions and plans, and subsequently a group presentation. This reinforced my ability to work in a team, and make speeches to present key ideas and innovations. Furthermore, another assignment included allocating a budget for a charity event efficiently to meet consumer demand with a sufficient supply of resources, requiring a degree of evaluation and critical thinking to determine where the allocation of the spending budget would satisfy participants. Ultimately, in a team, I determined the most effective advertisement campaign for British Airways to raise its market share.
 
 
 
@@ -159,9 +159,9 @@ I produced a project exploring possible services Barclays could offer to become 
 
 **UKMT Society**
 
-I am a founder of a mathematics society at Walthamstow Academy targeting Year 7 and 8 students to provide guidance on what they should expect in their UKMT exams as well as additional teaching and practice to maximise their possibility to get a GOLD tier UKMT certificate and be amongst the top Mathematics students in the country. Support is provided at a regular basis weekly through mentoring, teaching and question practice to assure students feel confident when approaching this competition to exhibit their problem-solving aptitude,
+I was a founder of a mathematics society at Walthamstow Academy that targeted Year 7 and 8 students to provide guidance on what they should expect in their UKMT exams as well as additional teaching and practice to maximise their possibility to achieve a GOLD tier UKMT certificate and be amongst the top Mathematicians in the country. Support was provided at a regular basis weekly through mentoring, teaching and question practice to assure students feel confident when approaching this competition to exhibit their problem-solving aptitude,
 
-Running this club involves group work, communication and coordination between me and my peers to make decisions on what practice papers would be the best and most effective to target growth in students.
+Running this club involved group work, communication and coordination between me and my peers to make decisions on what practice papers would be the most effective to target growth in students.
 
 
 
