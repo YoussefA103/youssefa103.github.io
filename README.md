@@ -36,7 +36,7 @@ The Realising Opportunities programme at UCL has augmented my referencing and no
 
 
 
-**Lectures**
+***Lectures***
 
 
 
@@ -54,7 +54,7 @@ Primarily, attending UCL’s Mathematics and Statistics masterclasses reinforced
 
 
 
-**Books and Reading**
+***Books and Reading***
 
 
 
@@ -88,7 +88,7 @@ I learned about the various components that derive inequalities globally and the
 
 
 
-**Competitions and Awards**
+***Competitions and Awards***
 
 
 
@@ -116,7 +116,7 @@ Furthermore, I was awarded the Head Of Year Award, an exclusive honour awarded t
 
 
 
-**Work Experiences and Employment**
+***Work Experiences and Employment***
 
 
 
@@ -153,7 +153,7 @@ I produced a project exploring possible services Barclays could offer to become 
 
 
 
-**Extracurriculars**
+***Extracurriculars***
 
 
 
