@@ -101,7 +101,7 @@ Achieving such an award accentuated my aptitude for problem-solving and mathemat
 
 **Young Economist of the Year Competition**
 
-Taking up the challenge of competing nationally in a written blog regarding contemporary economic issues significantly reinforced my academic essay-writing abilities as well as conducting effective research to complement and support my economic arguments.
+Taking up the challenge of writing a blog to compete nationally regarding contemporary economic issues significantly reinforced my academic essay-writing abilities as well as conducting effective research to complement and support my economic arguments.
 
 
 
