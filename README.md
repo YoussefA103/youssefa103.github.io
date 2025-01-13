@@ -11,7 +11,7 @@ Consistently engaging in the programme’s weekly tutorials and supervisions ups
 ![1736734295383](https://github.com/user-attachments/assets/6aef069c-ca10-4b26-9961-a380d3764397)
 **Imperial College mA*ths Online Programme**
 
-Primarily, completing Imperial College’s mA*ths Online MOOC modules assisted me to extend my mathematical knowledge beyond the A-Level syllabus and attain over 99% across multiple assessments. Furthermore, the programme’s lectures and masterclasses widened my curiosity in the application of mathematics in a variety of fields, such as the use of trigonometry in astronomy and audio engineering.
+Primarily, completing Imperial College’s mA*ths Online MOOC modules assisted me to extend my mathematical knowledge beyond the A-Level syllabus and attain over 99% across multiple assessments. Furthermore, the programme’s lectures and masterclasses widened my curiosity regarding the application of mathematics in a variety of fields, such as the use of trigonometry in astronomy and audio engineering.
 
 
 
@@ -23,7 +23,7 @@ The AMSP at Imperial College has helped me to refine my problem solving skills w
 
 **Sutton Trust Pathways to Banking and Finance**
 
-The programme’s Economics lectures have supplemented my wider knowledge of current real-world problems as well as providing me more detailed insights on possible careers in finance and banking; investment banking in Mergers and Acquisitions is career that I am working towards. Additionally, I refined key transferrable skills such as communication and public speaking.
+The programme’s Economics lectures have supplemented my wider knowledge of current real-world problems as well as providing me with more detailed insights on possible careers in finance and banking; investment banking in Mergers and Acquisitions is career that I am working towards. Additionally, I refined key transferrable skills such as communication and public speaking.
 
 
 
