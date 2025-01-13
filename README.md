@@ -85,6 +85,10 @@ Taking up the challenge of competing nationally in a written blog regarding cont
 ![1736737955971](https://github.com/user-attachments/assets/604cc48f-f617-4c33-bf77-22fd53fb3404)
 **3 Best in Everyone, 15 Best in Subject, and Head of Year Awards**
 
+Primarily, being awarded the most awards, comprising: Science, Geography, and Business at GCSE Level, in my school’s Best in Everyone Awards Ceremony induced confidence in me from acknowledging that I stand out in various subjects. Also, this confirmed the importance of resilience and motivation as crucial skills required in academic environments to persistently excel. Also, I was presented with 15 certificates across A-Level Mathematics, Geography, and Economics, as well as GCSE Business, Photography, Geography and Combined Science. These achievements stimulated me to strive for further success.
+
+Furthermore, I was awarded the Head Of Year Award, an exclusive honour awarded to the hardest working, most appealing and significantly accentuated student in the school. This instilled in me the importance of motivation, flexibility and significant management in the work I do to reach objectives and goals.
+
 
 
 **Work Experiences and Employment**
